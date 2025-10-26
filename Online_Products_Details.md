@@ -61,5 +61,7 @@ Online Products Details Links
 * [tree cutter](https://dropblast.store/products/grass-sickle-cutter-head?utm_campaign=22724838366&utm_medium=182580737758&utm_content=760931752791&gad_source=2&gclid=Cj0KCQjwvajDBhCNARIsAEE29WpYxACZGsmE0P9uMN-sSujTU9gRh5DCmua0CEdNBj3jxXhiPv4jcY4aAmKeEALw_wcB)
 * [Electric shaver](https://maydior.com/products/novashave-portable?gad_source=2&gclid=CjwKCAjw1ozEBhAdEiwAn9qbzVpPRSC2s_3ukvNjqKdO085Ab2EpE4BrGq2iOtChzzwlqnbvECl1RBoCRkQQAvD_BwE)
 * [Multi cleaner kitchen](https://cartkirana.com/products/powerful-multifunctional-cleaner-pack-of?utm_campaign=22728435012&utm_medium=182200698416&utm_content=761225970902&gad_source=2&gclid=Cj0KCQjwnJfEBhCzARIsAIMtfKIH9ORJ-cAlToE9l4IGB-bLahdpPmoLCGUClx9HuX_NaJuCjThUy1waApwlEALw_wcB)
+* [Multifunctional Deep Cleaning Flat](https://buyzo.in/products/multifunctional-deep-cleaning-flat-shovel?utm_source=google&utm_medium=Demand-Gen&utm_campaign=Multifunctional-Deep-Cleaning-Flat-Shovel&utm_id=Buyzo-GAds-9047&gad_source=2&gad_campaignid=23037152613&gclid=CjwKCAjwlt7GBhAvEiwAKal0chQUKBaowT6hWb8EmtrkmkkR0bx_5BvxMuxICePsTrJ--KTQL-wAkBoCll8QAvD_BwE)
+* [Baby Head Shaping Pillow](https://buyzo.in/products/baby-head-shaping-pillow?utm_source=Google&utm_medium=Demand-Gen&utm_campaign=Baby-Head-Shaping-Pillow&utm_id=Buyzo-GAds-9047&gad_source=2&gad_campaignid=22995283168&gclid=CjwKCAjw89jGBhB0EiwA2o1On9VDQusHV0PLlSaQTap_WRA3eeyQ2zN7C6pIh91bz5uFoSOPOWbacxoCRcUQAvD_BwE)
 
 
