@@ -6,7 +6,7 @@ Online Products Details Links
 * [car scratch](https://monkwow.shop/products/advance-car-scratch-repair-pack-of-2?gclid=CjwKCAiAmMC6BhA6EiwAdN5iLTJ6iQQE2dm8WUz_aPtrkgiAGb1ujWruBBqcZ8fEdbm5RibOKa5LuBoCoOkQAvD_BwE)
 * [vaccum cleaner for car](https://theuniquestorrs.com/products/kindergarten-book-set?gclid=Cj0KCQjw3bm3BhDJARIsAKnHoVX48MSGMT0Z5FfiOWcP_PzVV9PcpNZG7Hqw41OKIYrbVj7NysE0F5kaAsJaEALw_wcB)
 * [Vaccum Cleaner for car](https://thehomegreens.com/products/kindergarten-book-set?_pos=2&_psq=v&_ss=e&_v=1.0&gad_source=2&gad_campaignid=22942104392&gclid=CjwKCAjwwpDQBhAuEiwAa-4Wo4MHHz0JBVXluSghNEidSD3N6POOvsjPGZblb5IyshMKOzXJ1IkVzRoC-qAQAvD_BwE)
-* [Vaccum Cleaner for car](https://blinkmarket.store/products/portable-air-duster-wireless-vacuum-cleaner?utm_campaign=23232666684&utm_medium=187627368145&utm_content=782947741158&gad_source=2&gad_campaignid=23232666684&gclid=CjwKCAjwwpDQBhAuEiwAa-4Wo24G-3e6psBcr2iNz4j80MyAdNHs1ndb8AOYW7VYEn1SRqFns40T1xoCUIgQAvD_BwE)
+* [Vaccum Cleaner for car](https://blinkmarket.store/products/portable-air-duster-wireless-vacuum-cleaner?utm_campaign=23232666684&utm_medium=187627368145&utm_content=782947741158&gad_source=2&gad_campaignid=23232666684&gclid=CjwKCAjwwpDQBhAuEiwAa-4Wo24G-3e6psBcr2iNz4j80MyAdNHs1ndb8AOYW7VYEn1SRqFns40T1xoCUIgQAvD_BwE)(https://www.youtube.com/shorts/RDtenXKXnt4)
 
 * [live pure water purifier for rental based](https://www.livpuresmart.com/ro-subscription/nlp_newcity?utm_source=G_O&utm_medium=PM_Generic_Affinity&utm_campaign=Performance_Max&utm_term=&gad_source=1&gclid=Cj0KCQjw3bm3BhDJARIsAKnHoVXQLLAGHNnwvk4jjKwi01SDO3mpO-aH5XH2Lv_chWQyckLSCwfyEuIaAuL2EALw_wcB)
 * [link water tab in fancy for washing vessels](https://theurbangadget.com/products/aquaflow-waterfall-kitchen-faucet?utm_campaign=22000623021&utm_id=22000623021&adset_id=170603999943&ad_id=724950069728&utm_source_platform=Google&utm_source=ytv&placement=youtube.com&utm_medium=Paid&keyword=&device=m&device_model=&loc_int=1007768&loc_physical=1007768&gad_source=2&gclid=Cj0KCQiA7NO7BhDsARIsADg_hIZvlwo-mm13uUwviMN-F3gNCDIJc_FLbU8CGNNwr0LUTZCL-T3r42YaAgi8EALw_wcB)
@@ -108,3 +108,9 @@ Online Products Details Links
 * [hair oil putting comb for root](https://www.youtube.com/shorts/w_WXTjqQmgY)
 * [for babies eye mai or suna](https://www.youtube.com/shorts/UcU7K86443c)
 * [water heater for less price](https://www.youtube.com/shorts/suWQ4kTgFns)
+* [Bricks manufacturing business](https://www.youtube.com/shorts/uqZ08XGHQ4U)
+* [Kambi spencing for compound wall](https://www.youtube.com/shorts/V7gu4TnLVIo)
+* [Donkey products all selling](https://www.youtube.com/shorts/C7SI_NaActI)
+* [mini grinder for juice and masala items very good](https://www.youtube.com/shorts/8Dde9Cad7Rk)(https://www.youtube.com/shorts/KsJ7wgFyBWw)
+* [wholesale clothes](https://www.youtube.com/shorts/bnIbNOiArU4)
+
